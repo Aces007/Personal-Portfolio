@@ -4,10 +4,8 @@ Welcome!
 
 This is me. Ace Lawrence Clavano.
 
-20 Years Old.
+20 Years Old
 
+Currently studying in Polytechnic University of the Philippines-Sta. Mesa
 
-
-
-Still Looking for a Purpose......
-
+About to enter my 3rd year this coming September. 
